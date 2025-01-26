@@ -1,3 +1,4 @@
+50 tricks to identify DSA Patterns Link: https://drive.google.com/drive/folders/1Da_v5uHIvBscWcRRgMsYGq-hJ00dQL9Y
 
 2000 TOP COMPANIES HR EMAIL IDS: https://drive.google.com/drive/folders/1hJlxWGMr1UfV9UH84d_HjFP7InTMpPII
 <br>
